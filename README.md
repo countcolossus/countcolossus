@@ -1,4 +1,4 @@
-I am @countcolossus
+I am @countcolossus,
 I'm interested in progress
 and making money. 
 
